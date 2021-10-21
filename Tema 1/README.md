@@ -1,5 +1,5 @@
 Buna dimineata!
 
-Aici se gaseste tema 1 care a fost realizata impreuna cu Olariu Maria.
+Aici se gaseste tema 1.
 
 O zi frumoasa!
